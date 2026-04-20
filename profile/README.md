@@ -1,3 +1,5 @@
+⚠️ **IMPORTANT**: As of December 2025, the company has been closed due to relocation of the owner. This page will be kept in this state but most probably it will not be updated anymore. For further updates, check [the owner's profile](https://github.com/leonardopinna).
+
 # Money Goals SRL
 Welcome to the official page of Money Goals SRL. 
 
